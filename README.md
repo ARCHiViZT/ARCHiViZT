@@ -6,7 +6,7 @@ I am a frequent PT player, youll usually see me hanging around the Genshin area 
 
 Things to keep in mind;
 
-I am a suspected OSDD system and have introjects (Jon and Iudex).
+I am a suspected system and have introjects (Jon and Iudex).
 I also have OCD so may struggle to be responsive at times.
 Please be respectful of this.
 
