@@ -12,9 +12,13 @@ Please be respectful of this.
 
 DNI;
 
-Minors (you shouldnt be on the 18+ server), Proship, fakeclaimers, general dni criteria, KS fans, south park fans, dream fans, danganronpa fans
+BIG NO:
+Minors (you shouldnt be on the 18+ server), Venting to me out of the blue (ask first at least), Proship, fakeclaimers, general dni criteria, KS fans, south park fans, dream fans, danganronpa fans
+
+Furina x Neuvillette makes me really uncomfortable. 
 
 I am not interested in roleplay
+
 Do not copy my pony designs, especially not Iudex and Jon's.
 
 That's all! Thanks for reading.
